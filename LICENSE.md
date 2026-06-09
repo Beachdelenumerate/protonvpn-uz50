@@ -1,4 +1,4 @@
-
+secure ProtonVPN Module | free-trial + WireGuard-support is the best ProtonVPN module, featuring free-trial and WireGuard-support. Secure, fast, and optimized for privacy.
 
 
 
